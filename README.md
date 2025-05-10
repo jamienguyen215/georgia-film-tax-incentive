@@ -1,1 +1,0 @@
-# georgia-film-tax-incentive
